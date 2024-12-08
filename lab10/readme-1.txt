@@ -1,0 +1,1 @@
+Rita is cool girl.
